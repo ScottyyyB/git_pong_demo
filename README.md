@@ -1,2 +1,2 @@
 ##Learning Git Pong
-I need to master this so I can be a good team member. I like turtles. Yeah craftacademy fuck yeah. bla bla. Another one
+I need to master this so I can be a good team member. I like turtles. Yeah craftacademy fuck yeah. bla bla. Another one, another one, DJ Khaled!
